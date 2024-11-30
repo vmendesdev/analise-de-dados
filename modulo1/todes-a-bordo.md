@@ -8,3 +8,4 @@ Durante a palestra, recordei muitas lembranças e, com elas, muitas ideias de co
 
 Hoje, meu resumo se tornou um desabafo, e fica aqui a frase que está ressoando em minha mente neste momento: "É necessário enxergar o passado para ter maior compreensão do presente e, assim, transformar o futuro."
 
+E assim, finalizo o meu primeiro módulo. Com a esperança e confiança que logo receberei o meu tão sonhado "SIM" para atuar em TECH. 
